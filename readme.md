@@ -17,7 +17,7 @@ Key Findings
 
 Revenue peaks in November and December, indicating strong seasonal demand.
 
-2. Furniture Is the Main Profitability Problem ⭐
+2. Furniture Is the Main Profitability Problem
 
 Furniture:
 
