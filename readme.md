@@ -27,9 +27,9 @@ Only 2.5% margin
 
 55% of unprofitable sales
 
-This identifies Furniture as the primary source of inefficiency.
+Furniture as the primary source of inefficiency.
 
-3. Discounting Drives Losses ⭐
+3. Discounting Drives Losses
 
 Analysis showed:
 
